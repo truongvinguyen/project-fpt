@@ -1,1 +1,0 @@
-qua hay qya nguy hiem ghê
