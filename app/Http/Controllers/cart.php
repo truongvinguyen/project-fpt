@@ -1,1 +1,1 @@
-qua hay qya nguy hiem
+qua hay qya nguy hiem ghê
